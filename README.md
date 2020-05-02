@@ -28,5 +28,8 @@ Pag 198: Hacer ejercicios 3, 4, 5, 6, y 7. Para el ejercicio 3b, considere sesgo
 
 
 Jueves 30 de Abril de 2020 - 2 pm
+Asistentes: Falto triana y enrique.
+Discutimos la tarea 6.
+
 
 
