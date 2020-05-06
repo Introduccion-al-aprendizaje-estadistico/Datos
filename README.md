@@ -31,5 +31,8 @@ Jueves 30 de Abril de 2020 - 2 pm
 Asistentes: Falto triana y enrique.
 Discutimos la tarea 6.
 
+Lunes 4 de Mayo de 2020 - 2pm
+Asistentes: todos.
+Instrui a los estudiantes al capitulo 6, les di instrucciones sobre la tarea 7 para el dia Lunes 11 de Mayo. Les entregue las notas del capitulo 6.  
 
 
